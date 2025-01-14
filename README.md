@@ -14,6 +14,8 @@
 
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   i study lots of things like astrology, paleontology, angelology, and demonology ! ^_^
 
+![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   i reallly lovveeee my huzband ><
+
 ![angel](https://64.media.tumblr.com/6cbe9b0e43b07fe671249570e9bdfca6/e2c987e3fe889c94-6b/s540x810/acef03d05b6c52ddb4d894d090b4aca7b28023b0.pnj)
 
 ʚɞ byf ( ˶°ㅁ°) !!
