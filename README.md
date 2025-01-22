@@ -61,7 +61,7 @@
 
 ʚɞ special mentionz (˶˃ ᵕ ˂˶) .ᐟ.ᐟ
 
-lejan, keb, vin, viz, ash, fyodor, laffy, stan, nicole, gustav, mango, pip, and cally!!!
+lejan, keb, vin, viz, ash, fyodor, laffy, stan, nicole, gustav, mango, pip, lenny, and cally!!!
 
 remember, this isnt in order!! i love all my friends, even if they arent on here!!^_^
 
