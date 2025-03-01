@@ -1,12 +1,14 @@
 ![angel2](https://github.com/user-attachments/assets/c5cd8cde-f2bd-485c-858c-49339f019cbd)
 
-![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   Haii!!^_^ im aiden or you can call me adam !!! 
+![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   Haii!!^_^ i go by many names, but mainly castiel or aiden!
 
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   fictkin - dollkin - angelkin! feel free to block if you dont like it!>_<
 
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   please use tonetags! /nf 
 
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   main hyperfixations are goodomens, hannibal/heu, drwho, spn, sherlock holmes, & housemd!!! ><
+
+![angel](https://64.media.tumblr.com/6cbe9b0e43b07fe671249570e9bdfca6/e2c987e3fe889c94-6b/s540x810/acef03d05b6c52ddb4d894d090b4aca7b28023b0.pnj)
 
 ʚɞ in name + meanings!! ( ദ്ദി ˙ᗜ˙ )
 
