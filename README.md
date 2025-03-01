@@ -2,40 +2,11 @@
 
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   Haii!!^_^ im aiden or you can call me adam !!! 
 
-![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)  #1 aziraphale and adam raki kinnie !!! 
-
-![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv) he - it - they - doll - pup ! infp . taurus :3
-
-![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   trans + gay demiromantic . happily taken!!!<3 
-
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   fictkin - dollkin - angelkin! feel free to block if you dont like it!>_<
 
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   please use tonetags! /nf 
 
-![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   i study lots of things like astrology, paleontology, angelology, and demonology ! ^_^
-
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   main hyperfixations are goodomens, hannibal/heu, drwho, spn, sherlock holmes, & housemd!!! ><
-
-![angel](https://64.media.tumblr.com/6cbe9b0e43b07fe671249570e9bdfca6/e2c987e3fe889c94-6b/s540x810/acef03d05b6c52ddb4d894d090b4aca7b28023b0.pnj)
-
-ʚɞ byf ( ˶°ㅁ°) !!
-
-୭ 🥩 › mentally ill and hypersexual eugh... ‹ ![meoooww](https://64.media.tumblr.com/3ddb3c23e167e74901522b959e9a5bfe/c6e913aea8c8a172-c9/s75x75_c1/e98e09a1ba0c70226ebf809e4c842535541c30b1.gifv)୭ 
-
-୭ 🥩 › mention of cannibalism/cannibalistic tendencies ‹ ![meoooww](https://64.media.tumblr.com/3ddb3c23e167e74901522b959e9a5bfe/c6e913aea8c8a172-c9/s75x75_c1/e98e09a1ba0c70226ebf809e4c842535541c30b1.gifv)୭
-
-୭ 🥩 › sexual innuendos and  death threats ‹ ![meoooww](https://64.media.tumblr.com/3ddb3c23e167e74901522b959e9a5bfe/c6e913aea8c8a172-c9/s75x75_c1/e98e09a1ba0c70226ebf809e4c842535541c30b1.gifv)୭
-
-୭ 🥩 › sarcastic or dry when tired ‹ ![meoooww](https://64.media.tumblr.com/3ddb3c23e167e74901522b959e9a5bfe/c6e913aea8c8a172-c9/s75x75_c1/e98e09a1ba0c70226ebf809e4c842535541c30b1.gifv)୭
-
-୭ 🥩 › sensitive and defensive easily,,, ‹ ![meoooww](https://64.media.tumblr.com/3ddb3c23e167e74901522b959e9a5bfe/c6e913aea8c8a172-c9/s75x75_c1/e98e09a1ba0c70226ebf809e4c842535541c30b1.gifv)୭
-
-୭ 🥩 › feminine trans boy!!! i do not wear thighhighs ‹ ![meoooww](https://64.media.tumblr.com/3ddb3c23e167e74901522b959e9a5bfe/c6e913aea8c8a172-c9/s75x75_c1/e98e09a1ba0c70226ebf809e4c842535541c30b1.gifv)୭
-
-୭ 🥩 › i study angelology and demonology and is an angelkin, **BUT** i am strictly *not* religous. ‹ ![meoooww](https://64.media.tumblr.com/3ddb3c23e167e74901522b959e9a5bfe/c6e913aea8c8a172-c9/s75x75_c1/e98e09a1ba0c70226ebf809e4c842535541c30b1.gifv)୭
-
-
-![angel](https://64.media.tumblr.com/6cbe9b0e43b07fe671249570e9bdfca6/e2c987e3fe889c94-6b/s540x810/acef03d05b6c52ddb4d894d090b4aca7b28023b0.pnj)
 
 ʚɞ in name + meanings!! ( ദ്ദി ˙ᗜ˙ )
 
