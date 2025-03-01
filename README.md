@@ -1,6 +1,6 @@
 ![angel2](https://github.com/user-attachments/assets/c5cd8cde-f2bd-485c-858c-49339f019cbd)
 
-![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   Haii!!^_^ i go by many names, but mainly castiel or aiden! (see more of my names in  [pronouns page :3](https://en.pronouns.page/@eternalangel)
+![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   Haii!!^_^ i go by many names, but mainly castiel or aiden! (see more of my names in  [pronouns page](https://en.pronouns.page/@eternalangel) :3)
 
 ![nya](https://64.media.tumblr.com/8e8bae7c8826dab2afbc6dcb2a260f9f/ef3796930a4ac20c-e4/s75x75_c1/d253f28a8b28875239e75e1000f3716eefeda43e.gifv)   fictkin - dollkin - angelkin - caninekin ! feel free to block if you dont like it!>_<
 
